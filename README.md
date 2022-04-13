@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @upwds
 - 👀 I’m interested in all kinds of research
-- 🌱 I’m currently learning to live
+- 🌱 I’m currently learning to survive
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
